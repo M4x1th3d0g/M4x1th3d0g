@@ -19,6 +19,7 @@ I'm a 19-year-old from California, USA.
 - Horses & equestrian work
 - Animal care and welfare
 - My Little Pony
+- Anime & manga (Jujutsu Kaisen, Death Note, Fullmetal Alchemist, Blue Lock, Gachiakuta, Soul Eater, Witch Hat Atelier, and Haikyu!!)
 - Horror media and practical effects
 - Art, creativity, and storytelling
 - Learning new skills
