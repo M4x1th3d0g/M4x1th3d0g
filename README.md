@@ -24,6 +24,8 @@ I'm a 19-year-old from California, USA.
 - Art, creativity, and storytelling
 - Learning new skills
 
+![melynnologist](./melynnologist.gif)
+
 ---
 
 ## Current Goals
