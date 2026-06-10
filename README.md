@@ -23,6 +23,7 @@ I'm a 19-year-old from California, USA.
 - Horror media and practical effects
 - Art, creativity, and storytelling
 - Learning new skills
+
 ---
 
 ## Current Goals
