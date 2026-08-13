@@ -13,7 +13,6 @@ I'm a 19-year-old from California, USA.
 ☠︎︎ I enjoy learning new things, exploring hobbies, and growing both personally and professionally.
 
 
-
 ☠︎︎ Toru Fujisaki (YBC/YBB) fictionkin.
 
 ---
