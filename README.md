@@ -11,6 +11,7 @@ I'm a 19-year-old from California, USA.
 ☠︎︎ I sometimes struggle to express my thoughts the way I want to, but I'm continuously working on improving my communication skills.  
 ☠︎︎ I have a strange fascination with gore, practical effects, horror art, and the craftsmanship behind creating intense or unsettling visuals in media.  
 ☠︎︎ I enjoy learning new things, exploring hobbies, and growing both personally and professionally.
+☠︎︎ Toru Fujisaki (YBC/YBB) fictionkin.
 
 ---
 
