@@ -50,6 +50,7 @@ I'm a 19-year-old from California, USA.
 - Dexter is convinced the apartment belongs to him.
 - I somehow enjoy both cute pastel aesthetics and horror gore.
 - I appreciate kindness, honesty, and people who are willing to learn.
+- ⚠︎⚠︎⚠︎ I practice age regression (NON SEXUAL) ⚠︎⚠︎⚠︎
 - https://guns.lol/m4x1th3d0g
 ---
 
